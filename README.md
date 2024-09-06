@@ -9,3 +9,4 @@
 
 ## My travel notes go here
 
+I'm supposed to put some images here
